@@ -22,6 +22,6 @@ Nous nous réservons le droit de modifier cette politique de confidentialité à
 
 **Contact**
 
-Si vous avez des questions concernant cette politique de confidentialité, n'hésitez pas à nous contacter à [votre adresse e-mail].
+Si vous avez des questions concernant cette politique de confidentialité, n'hésitez pas à nous contacter à contact@ju-ch.com.
 
 Dernière mise à jour : 13 août 2024
